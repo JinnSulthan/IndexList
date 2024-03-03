@@ -20,5 +20,5 @@
 
 
 **Credits** (In Harder Ways)
-- [Pirates_Way](https://t.me/Pirates_Way)  - For Informations.
+- **Pirates_Way**  - For Informations.
 - **Google** - For All🤗. 
