@@ -5,3 +5,8 @@
 - [PsaRips](https://psa.pm)
 - [Pahe](https://pahe.li)
 - [x265rips](http://x265rips.co)
+- [Olam](https://olamovies.icu)
+
+
+
+<b><i> Web Domains can change anytime So if sites not working prefer a VPN to Surf</i></b>
