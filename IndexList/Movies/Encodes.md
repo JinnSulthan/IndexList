@@ -9,4 +9,4 @@
 
 
 
-<b><i> Web Domains can change anytime So if sites not working prefer a VPN to Surf</i></b>
+<b><i> Web Domains can change anytime, So if sites are not working prefer a VPN to Surf.</i></b>
